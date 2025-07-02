@@ -1,0 +1,1 @@
+I really enjoyed this whoel coding proceess even though most of it was with the help of youtube but i got the neccessary knowledge needed, i just need to know how to put the footer ON THE FOOTER and not beside the card.
